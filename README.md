@@ -10,9 +10,7 @@ ${\color{#8f8bd7}{⊹₊˚‧︵ ❝ i︲loved︲a ︲version︲of︲you︲that�
 
 ${\color{#d1b2ed}{\textsf{wifies, }}\color{#d18fd9}{\textsf{or }}\color{#d1b2ed}{\textsf{sam. }}\color{#d1b2ed}{\textsf{18 yo ₊ }}\color{#d18fd9}{\textsf{he/they pref }}     }$</br>
 ${\color{#ffcdf0}{\textsf{infp 5w4 125 so/sx }}\color{#d1b2ed}{\textsf{masc leaning aroace bi}}    }$</br>
-  
-thest<details>(cjidjow)
-  thios is ia  texst</details>
+hi
 
 ${\color{#8f8bd7}{❝ and︲i've︲been︲drowning︲myself︲trying︲to︲cover︲the︲drain ❞₊‿︵} }$
 </br>
