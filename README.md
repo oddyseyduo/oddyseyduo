@@ -27,6 +27,7 @@ ${\color{#d1b2ed}{\textsf{i am on from 2pm-2am most days, but i do have college}
   </details>
    <details>
 <summary>$\color{#8f8bd7}{\textsf{︵ ac}}$</summary><br>
+${\color{#ffe3f7}{\textsf{desirednull, iivestal, starfaiinight, vinnicide, bapnx88796, twow09}} }$<br>
   </details>
 
 ${\color{#8f8bd7}{❝ and︲i've︲been︲drowning︲myself︲trying︲to︲cover︲the︲drain ❞₊‿︵} }$
