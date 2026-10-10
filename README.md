@@ -33,5 +33,5 @@ ${\color{#ffe3f7}{\textsf{desirednull, iivestal, starfaiinight, vinnicide, bapnx
 ${\color{#8f8bd7}{❝ and︲i've︲been︲drowning︲myself︲trying︲to︲cover︲the︲drain ❞₊‿︵} }$
 </br>
 <img align="center" width="70%" src="https://files.catbox.moe/tqbhwc.png"><br>
- [🢀](https://github.com/cr0ssroads) <img src="https://komarev.com/ghpvc/?username=oddyseyduo&color=d18fd9&label=m" alt="view+counter"> [🢂](https://github.com/the-soul-eclectic)
+ [🢀](https://github.com/cr0ssroads) <img src="https://komarev.com/ghpvc/?username=oddyseyduo&color=d18fd9&label="m" alt="view+counter"> [🢂](https://github.com/the-soul-eclectic)
 </br>
